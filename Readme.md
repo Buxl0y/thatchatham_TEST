@@ -3,3 +3,6 @@
 ## Team members
 Flick
 Cake
+
+## About Us
+Flick love pinkky
