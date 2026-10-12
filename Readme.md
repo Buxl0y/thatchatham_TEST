@@ -5,4 +5,4 @@ Flick
 Cake
 
 ## About Us
-Flick love pinkky
+Flick and cake very handsome
